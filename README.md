@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Natplays1
 - 👀 I’m interested in Coding and technology
-- 🌱 I’m currently learning science and *coding  (* code.org and scratch ( im not a very good coder ) )
 - 💞️ I’m looking to collaborate on fun projects
 - 📫 you can reach me at nat2rey8@gmail.com
 
